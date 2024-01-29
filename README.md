@@ -1,1 +1,1 @@
-alexa 🤖 how do i unpiss 💦 my pants 👖 ?
+Gettin' back on the horse 💪💪
